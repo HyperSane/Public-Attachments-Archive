@@ -16,6 +16,6 @@ Encrypted
 [📎 Download Encrypted File (.gpg)](https://github.com/HyperSane/Public-Attachments-Archive/blob/4Chodes/%5BEncrypted%5D%204chan%20death%20threats%20censored.pdf.gpg)
 
 **🔐 Password required to unlock:**  
-Enter the correct code taught in ARG to reveal the truth.
+Enter the correct code taught in Reddit to reveal the truth.
 
 > Hint: It was repeated three times.
